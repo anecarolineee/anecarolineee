@@ -1,3 +1,4 @@
+
 - 👋 Olá, sou @anecarolineee
 - 👀 Estou interessado em ...terminar o ensino medio e fazer faculdade 
 - 🌱 Atualmente estou aprendendo...atualmente so na escola 
